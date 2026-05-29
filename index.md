@@ -1,10 +1,12 @@
 # hello
-welcome to my very intresting website!
+my website
 
 socials
 
-[youtube](https://video.link/w/vl67bbb10d5a34f#)
+[yt](https://www.youtube.com/@kronoswastaken) I make cringe stuff idk
 
-[instagram](https://video.link/w/vl67bbb10d5a34f#)
+ig (doesnt exist anymore go die meta)
 
-[X formerly twitter](https://video.link/w/vl67bbb10d5a34f#)
+dc: kronosyuh
+
+idk what else to put
