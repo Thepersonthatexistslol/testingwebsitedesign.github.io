@@ -7,6 +7,6 @@ socials
 
 ig (doesnt exist anymore go die meta)
 
-dc: kronosyuh
+dc: carpetdrinker
 
 idk what else to put
